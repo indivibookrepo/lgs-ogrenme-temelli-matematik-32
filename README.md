@@ -1,0 +1,1 @@
+# lgs-ogrenme-temelli-matematik-32
